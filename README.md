@@ -10,3 +10,5 @@ Here are some ideas to get you started:
 📫 How to reach me venkatyadlapalli4626@gmail.com
 
 📄 Know about my experiences Venkayya_Yadlapalli_Resume
+
+⚡ Fun fact I am an extrovert
